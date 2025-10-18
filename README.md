@@ -1,0 +1,1 @@
+# static-front04.github.io
